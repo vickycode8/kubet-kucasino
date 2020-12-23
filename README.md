@@ -1,1 +1,1 @@
-# kubet-kucasino
+# vina
